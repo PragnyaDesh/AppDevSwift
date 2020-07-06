@@ -1,1 +1,0 @@
-# Pragnya-ADG
